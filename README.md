@@ -18,21 +18,21 @@ Filmyzilla 🟢 Download Link
 
 mp4moviez 🟢 Download Link
 
-[➤ ►🌍📺📱👉 1080p 🟢 Pushpa 2: The Rule] (https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
+[➤ ►🌍📺📱👉 1080p 🟢 Pushpa 2: The Rule](https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
 
-[➤ ►🌍📺📱👉 720p 🟢 Download Pushpa 2 movie subtitles] (https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
+[➤ ►🌍📺📱👉 720p 🟢 Download Pushpa 2 movie subtitles](https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
 
-[➤ ►🌍📺📱👉 480p 🟢 Pushpa 2 movie download in HD] (https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
+[➤ ►🌍📺📱👉 480p 🟢 Pushpa 2 movie download in HD](https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
 
 Also Download: kalki movie download
 
 hdmovieshub 🟢 Download Link
 
-[➤ ►🌍📺📱👉 1080p 🟢 Pushpa 2: The Rule] (https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
+[➤ ►🌍📺📱👉 1080p 🟢 Pushpa 2: The Rule](https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
 
-[➤ ►🌍📺📱👉 720p 🟢 Download Pushpa 2 movie subtitles] (https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
+[➤ ►🌍📺📱👉 720p 🟢 Download Pushpa 2 movie subtitles](https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
 
-[➤ ►🌍📺📱👉 480p 🟢 Pushpa 2 movie download in HD] (https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
+[➤ ►🌍📺📱👉 480p 🟢 Pushpa 2 movie download in HD](https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
 
 Wondering how to W𝚊tch Pushpa 2 The Rule 𝙾nl𝚒ne? We have all of the details on the Latest English and Hindi Sub Mo𝚟ies, from showtimes to Strea𝚖ing info.
 
