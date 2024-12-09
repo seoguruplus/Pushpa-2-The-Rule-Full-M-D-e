@@ -10,11 +10,11 @@ Still 𝙽ow Pushpa 2 The Rule are options for Downl𝚘ading or W𝚊tching Pus
 
 Filmyzilla 🟢 Download Link
 
-[➤ ►🌍📺📱👉 1080p 🟢 Pushpa 2: The Rule] (https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
+[➤ ►🌍📺📱👉 1080p 🟢 Pushpa 2: The Rule](https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
 
-[➤ ►🌍📺📱👉 720p 🟢 Download Pushpa 2 movie subtitles] (https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
+[➤ ►🌍📺📱👉 720p 🟢 Download Pushpa 2 movie subtitles](https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
 
-[➤ ►🌍📺📱👉 480p 🟢 Pushpa 2 movie download in HD] (https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
+[➤ ►🌍📺📱👉 480p 🟢 Pushpa 2 movie download in HD](https://www.highrevenuenetwork.com/ypmjv5%20Ojid?key=12566a9a180c444b0d3809b5705d185e+bad)
 
 mp4moviez 🟢 Download Link
 
